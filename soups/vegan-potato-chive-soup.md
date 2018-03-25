@@ -4,17 +4,17 @@
 
 ## Ingredients
 
-2 tablespoons olive oil
-1 onion, chopped
-4 garlic clove, minced
-6 potatoes, peeled and diced
-1 cup chives, chopped
-3 cups vegetable broth
-2 cups water
-1 tablespoon fresh dill, chopped
-2 teaspoons sea salt
-1/4 teaspoon pepper
-1/2 teaspoon thyme, dried
++ 2 tablespoons olive oil
++ 1 onion, chopped
++ 4 garlic clove, minced
++ 6 potatoes, peeled and diced
++ 1 cup chives, chopped
++ 3 cups vegetable broth
++ 2 cups water
++ 1 tablespoon fresh dill, chopped
++ 2 teaspoons sea salt
++ 1/4 teaspoon pepper
++ 1/2 teaspoon thyme, dried
 
 ## Preparation
 
