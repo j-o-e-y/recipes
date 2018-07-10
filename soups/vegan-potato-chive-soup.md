@@ -26,6 +26,6 @@
 
 4. When the soup comes to a boil, turn down the heat and simmer until potatoes are tender, 20 to 25 minutes.
 
-5. Remove from heat, and blend with an immersion blender. If the soup is too thick add a small amount of water or vegetable broth until the desired thickness is achieved. Taste and season with salt and pepper if needed.
+5. Remove from heat and blend with an immersion blender. If the soup is too thick, add a small amount of water or vegetable broth until the desired thickness is achieved. Taste and season with salt and pepper if needed.
 
 6. Serve garnished with a few chopped chives.
